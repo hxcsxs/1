@@ -6,7 +6,7 @@ https://www.hxc8.vip
 # 加入收藏夾防丢失
 https://github.com/hxcsxs/1
 
-# 永久域名 hxcsxs.org
+# 永久域名 hxcsxs.net
 
 建議立即收藏本頁，永不丟失！
 
