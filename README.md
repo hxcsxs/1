@@ -1,7 +1,7 @@
 # 含羞草实习所
-最新地址(2020.10.18更新/本地址將定期更換)
+最新地址(本地址將定期更換)
 
-https://www.hxc8.vip
+https://www.hxc11.vip
 
 # 加入收藏夾防丢失
 https://github.com/hxcsxs/1
